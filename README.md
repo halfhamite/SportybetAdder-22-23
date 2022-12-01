@@ -4,7 +4,7 @@ Sportybet balance Adder
 Tops up Your SportyBet Wallet without going through their usual process of funding with 
 Your bank/Credit/debit Card “This is a Hack” 
 
-All you need is to just follow the steps in this short video.
+All you need is to just follow the steps I will provide to you after payment.
 
 With this script and apk. You will be able to earn a maximum of 88$ a day. The script works for only five successful top ups then you will have to come back for an update. 
 This hack works for all the sportybet supported countries.
@@ -20,7 +20,7 @@ Sportybet money adder for iPhone/ios doesn’t use authorization code unlike the
 LOOTthis befor bookie closes the window.
 
 
-Cashout proofs available for all those with doubt.
+Cashout proofs available.
 Contact me on Tele: @Cronos1402
 Price for Iphone and PC: 100$
 
